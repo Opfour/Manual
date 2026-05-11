@@ -15,6 +15,7 @@ Curious [why a founder would want to work with us](https://bit.ly/meet-betafund)
 + **Christine Tao, Sounding Board**: "Bloomberg Beta...has their own perspectives and they're willing to invest and put their money behind founders without having to look at who else is in the round, or just following trends."
 + **Lukas Biewald, Weights & Biases**: "James was my first choice of investors I wanted to work with in my second company because he's so good at pushing me to think clearly and so relentlessly positive and thoughtful.”
 + **Spike Lipkin, Newfront**: "Roy put us into business. We would not be here without [him].”
++ **Tade Oyerinde, Campus**: "Founders couldn’t ask for better day 1 investors.”
 
 |                                                                                                                                                                                                                                                                                                           |                                                                                         |
 | :-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | :-------------------------------------------------------------------------------------- |
