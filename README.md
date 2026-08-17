@@ -30,8 +30,6 @@ Julianne Fables — [X](https://twitter.com/jafables) // [LinkedIn](https://www.
 
 Beth Kroman — [LinkedIn](https://www.linkedin.com/in/beth-kroman/)
 
-Amy Tam — [LinkedIn](https://www.linkedin.com/in/amytam01/)
-
 Cate Taylor — [LinkedIn](https://www.linkedin.com/in/catetaylor4/)
 
 Shivon Zilis (advisor) — [X](https://twitter.com/shivon) // [LinkedIn](https://www.linkedin.com/in/shivonzilis/)
